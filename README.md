@@ -15,4 +15,4 @@ Jonathan Folino
 
 Hi from Archita
 
-Jan Winner, Esquire (Bill and Ted's reference. Get it? No. Ok.)
+Jan Winner, Esquire (Bill and Ted's reference. Get it? No? Ok.)
